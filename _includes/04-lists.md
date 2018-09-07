@@ -1,0 +1,7 @@
+- Video games
+- The fantasy genre
+- Movies
+- Books
+- Art
+- Drama/acting
+- D&D
