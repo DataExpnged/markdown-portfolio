@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+- Video games
+- The fantasy genre
+- Movies
+- Books
+- Art
+- Drama/acting
+- D&D
