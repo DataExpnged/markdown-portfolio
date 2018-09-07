@@ -1,0 +1,6 @@
+- D&D
+- video games
+- reading
+- drawing
+- film
+- drama/theater

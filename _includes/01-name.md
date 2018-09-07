@@ -1,1 +1,1 @@
-# Carter Johnston, Unparralelled praiser of the sun.
+# Carter Johnston, Unparalelled praiser of the sun.
